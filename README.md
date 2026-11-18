@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="https://raw.githubusercontent.com/sonasanchay/best-digigold-app-in-bangalore/main/best-digigold-app-in-bangalore.webp" alt="Best DigiGold App in Bangalore - Sanchay DigiGold" width="800">
+</p>
 
 # 🪙 Best DigiGold App in Bangalore: Buy 24K Digital Gold Easily
 
@@ -76,6 +79,10 @@ Before choosing a digital gold application, understand the features it offers.
 Choosing an application with clear information can help you manage your gold purchases more confidently.
 
 ---
+
+<p align="center">
+  <img src="https://raw.githubusercontent.com/sonasanchay/best-digigold-app-in-bangalore/main/digigold-app-in-bangalore.webp" alt="Best DigiGold App in Bangalore - Sanchay DigiGold" width="300">
+</p>
 
 ## 🔍 How to Choose the Best DigiGold App in Bangalore?
 
